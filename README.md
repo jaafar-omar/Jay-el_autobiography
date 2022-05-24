@@ -1,2 +1,2 @@
-# Jay-el_autobibliography
+# Jay-el_autobiography
  
