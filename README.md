@@ -1,2 +1,0 @@
-# Jay-el_autobiography
- 
